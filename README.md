@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pattern2521
 - 👀 I’m interested in random shit
-- 🌱 I’m currently learning to code properly
+- 🌱 I’m currently learning to do shit
 - 💞️ I’m not looking to collaborate on anything unless if i get stuck
 - 📫 How to reach me:(Dont)
 
